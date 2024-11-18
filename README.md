@@ -5,5 +5,6 @@ About me
 - 👯 I’m looking to collaborate on a Psychology project.
 - 🤔 I’m looking for help to improve my problem-solving skills.
 - 💬 Feel free to reach out to me for pro bono consulting, volunteering, or just an interesting discussion.
-- ✉️ You can email me at ! I’ll try to respond as soon as possible.
+- ✉️ You can email me at ilovepakpak@gmail.com
+! I’ll try to respond as soon as possible.
 - ⚡ Fun fact: Looking for a fact? Nope, nothing here!
