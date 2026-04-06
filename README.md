@@ -6,4 +6,4 @@ About me
 -  I’m looking for help to improve my problem-solving skills.
 -  Feel free to reach out to me for pro bono consulting, volunteering, or just an interesting discussion.
 -  You can email me at tranvanhuy160304@gmail.com ! I’ll try to respond as soon as possible.
-- ⚡ Fun fact: Looking for a fact? Nope, nothing here!
+-  Fun fact: Looking for a fact? Nope, nothing here!
